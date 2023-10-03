@@ -17,7 +17,7 @@ pic 5 - linux instance
 ![image](https://github.com/LytvKhai/Labs/assets/145440852/2f3abb5f-5d64-4379-a0b5-1f82901ea21a)
 pic 6 - turn on httpd.service
 
-![image](https://github.com/LytvKhai/Labs/assets/145440852/05e800cf-9c51-4786-9752-8ecbbccf5a70)
+![image](https://github.com/LytvKhai/Labs/assets/145440852/a6c74cc9-4b26-4c2e-bb81-029d49371355)
 pic 7 - directory with web site
 
 ![image](https://github.com/LytvKhai/Labs/assets/145440852/3add870f-6735-429c-a00b-22974d03aa3d)
