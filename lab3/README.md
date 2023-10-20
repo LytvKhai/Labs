@@ -10,3 +10,10 @@
 
 ![image](https://github.com/LytvKhai/Labs/assets/145440852/ad3d0dea-53fe-417c-9671-e3b1e69294a1)
 
+![image](https://github.com/LytvKhai/Labs/assets/145440852/2ae148bb-83e0-43ed-8ed6-cc2bd8e5e1df)
+
+![image](https://github.com/LytvKhai/Labs/assets/145440852/b707a952-43a7-4e77-b203-6b5c5be1e2eb)
+
+![image](https://github.com/LytvKhai/Labs/assets/145440852/60b56d30-fec7-4543-89db-0895cafeb9c3)
+
+![image](https://github.com/LytvKhai/Labs/assets/145440852/8b2ac73c-bb87-411a-98c3-776d098c5286)
