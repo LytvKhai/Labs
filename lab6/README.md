@@ -4,7 +4,12 @@
 
 ![image](https://github.com/LytvKhai/Labs/assets/145440852/7d05d354-6c07-423a-8d2a-21661498378c)
 
-![image](https://github.com/LytvKhai/Labs/assets/145440852/0a230995-c9d1-47ed-a1e6-918afa565974)
+![image](https://github.com/LytvKhai/Labs/assets/145440852/73972602-6bf1-408a-9afc-be8e2e088704)
 
-![image](https://github.com/LytvKhai/Labs/assets/145440852/8f4dd536-cfce-4e7b-9560-9d954e8fd028)
+
+![image](https://github.com/LytvKhai/Labs/assets/145440852/7f86d4e6-e9e9-4757-af4d-1158f9d8a320)
+
+
+![image](https://github.com/LytvKhai/Labs/assets/145440852/c302c084-656d-4b45-aec1-df286e1701be)
+
 
