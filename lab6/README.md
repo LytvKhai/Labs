@@ -6,10 +6,9 @@
 
 ![image](https://github.com/LytvKhai/Labs/assets/145440852/73972602-6bf1-408a-9afc-be8e2e088704)
 
-
 ![image](https://github.com/LytvKhai/Labs/assets/145440852/7f86d4e6-e9e9-4757-af4d-1158f9d8a320)
-
 
 ![image](https://github.com/LytvKhai/Labs/assets/145440852/c302c084-656d-4b45-aec1-df286e1701be)
 
+![image](https://github.com/LytvKhai/Labs/assets/145440852/8a31db4f-9df1-4bba-bb06-05d1e1fa2e93)
 
